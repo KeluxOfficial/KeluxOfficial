@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KeluxOfficial
+- 👀 I’m interested in ... Livestreaming
+- 🌱 I’m currently learning ... How to play Minecraft Hardcore
+- 💞️ I’m looking to collaborate on ... Keeping everything a secret
+- 📫 How to reach me ... twitch.tv/keluxofficial
